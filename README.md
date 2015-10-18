@@ -1,1 +1,1 @@
-Please do not use any of these files (include image, source, etc.) without my permission. Especially in Issues. Thank you
+Please do not use any of these files including texts, images, source, etc.
